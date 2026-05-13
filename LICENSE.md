@@ -1,4 +1,4 @@
-# 
+# AI-powered nft wash trading bot | multi-wallet-support + take-profit offers the most advanced nft wash trading bot, with multi-wallet-support and take-profit. Ideal for
 
 
 
